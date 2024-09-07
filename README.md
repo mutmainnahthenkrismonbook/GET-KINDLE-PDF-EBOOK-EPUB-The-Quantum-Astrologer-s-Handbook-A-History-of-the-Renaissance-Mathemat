@@ -1,0 +1,1 @@
+# GET-KINDLE-PDF-EBOOK-EPUB-The-Quantum-Astrologer-s-Handbook-A-History-of-the-Renaissance-Mathemat
